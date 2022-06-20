@@ -1,4 +1,2 @@
-# SUNIL-PRADHAN
-Paddho Spoken English
-My traget diffence academy
-Make Your Dream Happy
+# SUNIL-PRADHAn
+Make your Dream Happy
